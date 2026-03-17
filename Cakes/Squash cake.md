@@ -8,7 +8,7 @@
 - 1 tsp baking powder
 - 1 tbsp powdered cinnamon
 - 300 g shredded squash
-- Chopped nuts or sunflower seeds
+- 50-75 g chopped nuts or sunflower seeds
 
 (Recipe is for a Ø24 cm baking tray)
 
