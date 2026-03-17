@@ -1,0 +1,18 @@
+# Squash cake
+
+## Ingredients:
+- 150 g butter
+- 150 g brown sugar
+- 3 eggs
+- 240 g flour
+- 1 tsp baking powder
+- 1 tbsp powdered cinnamon
+- 300 g shredded squash
+- 50-75 g chopped nuts or sunflower seeds
+
+(Recipe is for a Ø24 cm baking tray)
+
+## Instructions: 
+- Mix butter and sugar until white and foamy. Add in eggs one at a time, stirring well after each.
+- Sift flour, baking powder, and cinnamon into the mix, and add squash and nuts.
+- Pour the mix in a buttered tray. Bake for 1 hour at 175 °C near the bottom of the oven.
